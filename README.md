@@ -1,0 +1,2 @@
+# Mapassion
+Gemstone carving is a combination of jewel-making and sculpture-carving.It is a very difficult trade to practice because of the crystalline structure of gemstones. Patience and dexterity is the key and these are the very qualities and traits our able artists at Ma Passion possess. Jade Gemstones in Ma Passion’s inventory are sourced from the very world-famous annual Tucson show. And every carving from this Inventory has been chiseling into perfection by a different artist, who put his heart and soul into the six to twelve-month project to achieve excellence.
